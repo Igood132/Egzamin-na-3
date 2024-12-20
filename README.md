@@ -1,1 +1,0 @@
-# Egzamin-na-3
